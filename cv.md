@@ -1,6 +1,6 @@
 # Viktoria Skaptsova
 
-  ## My Contact:
+## My Contact:
   
 **Location:** Minsk, Belarus
 **Phone:** +375447888615
